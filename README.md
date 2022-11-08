@@ -4,7 +4,7 @@
 <p align='center'>
 I'm Haykel 🤖 HKL ☠️
 </p>
-<p align='center'>For enquiries, reach out Haykel Yousfi via <a href="haykel.yousfi@outlook.com">HKL</a> or over on my <a href="https://www.cyberxtech.com/">Website</a>.</p>
+<p align='center'>For enquiries, reach out Haykel Yousfi via <a href="haykel.yousfi@outlook.com">haykel.yousfi@outlook.com</a> or over on my <a href="https://www.cyberxtech.com/">Website</a>.</p>
 
 <p align='center'>For connecting, projects and understand who i am without mask reach out my <a href="https://www.linkedin.com/in/haykelyousfi770077/">Linkedin</a>.</p>
 
