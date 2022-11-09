@@ -16,7 +16,7 @@ I'm Haykel 🤖 HKL ☠️
 </p>
   <p align='center'>💫 I’m currently learning AI, focus on target and keep my goal to serve humanity is future 💫 🚀👨‍🚀
 </p>
-  <p align='center'>💞️ I’m looking to collaborate on creating an AI trabsportation and AI manager for companies 🤝 🙏
+  <p align='center'>💞️ I’m looking to collaborate on creating an AI transportation and AI manager for companies 🤝 🙏
 </p>
 <p align='center'> 👨‍🏫 I am  Never Be Ashamed by Anywork you could imagine 🕵️ I am highly recommended by different companies👨‍💻in different sectors 😁 i worked even in restaurants as a cleaner, server and chef 👨‍🍳 recieved more than 100 opinions rated 5 stars on google for services and friendly person ( most clients said “I am their therapist, advisor and listener”) 👨‍🎨
 <p align='center'>
