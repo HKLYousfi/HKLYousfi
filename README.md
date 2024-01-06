@@ -8,7 +8,7 @@
 
 <p align='center'>For inquiries, reach out to Haykel Yousfi via <a href="mailto:haykel.yousfi@outlook.com">haykel.yousfi@outlook.com</a> or visit my <a href="https://www.cyberxtech.com/">Website</a>.</p>
 
-<p align='center'>To connect, collaborate on projects, and understand who I am without a mask, check out my <a href="https://www.linkedin.com/in/haykelyousfi770077/">LinkedIn</a>.</p>
+<p align='center'>To connect, collaborate on projects, and understand who I am without a mask, check out my <a href="https://pl.linkedin.com/in/haykel-yousfi-xyx">LinkedIn</a>.</p>
 
 <h1 align='center'><i>You are awesome!</i></h1>
 <h1 align='center'><i>Stay awesome!</i></h1>
