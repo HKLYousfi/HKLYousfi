@@ -1,4 +1,4 @@
-[![Social banner for](https://www.cyberxtech.com/wp-content/uploads/2013/08/metahy-1150x400.png)](https://www.cyberxtech.com/)
+[![Social banner for](https://media.licdn.com/dms/image/v2/D4D16AQGXTHBEp5cSPQ/profile-displaybackgroundimage-shrink_350_1400/B4DZYmSQFVHsAY-/0/1744399042783?e=1750291200&v=beta&t=7pX8rBk96e8mvtNfsrvnS_ZctcDt68p5UmqyHhoTidQ)](https://www.cyberxtech.com/)
 <h1 align='center'>Who Am I? 🤖🌌</h1>
 
 <p align='center'>
